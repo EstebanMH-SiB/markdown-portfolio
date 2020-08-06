@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+![Logo of CRQ university](https://statics.sibcolombia.net/sib-resources/images/logos-socios/portal-sib/Logo-car-quindio.png)
